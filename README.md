@@ -1,1 +1,1 @@
-# Japanese-Sushi-Aesthetic-Website-
+# Japanese-Shushi-Aesthetic-Website-
